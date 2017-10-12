@@ -24,11 +24,24 @@ Now that you have a general understanding of how to best partner and work with O
 All of these questions and more will be covered. You will also have the opportunity to ask your local coach anything you want to know about them!
 
 ## Homework
-Homework due next Monday at 7 pm: [What's my Brand Worksheet](https://docs.google.com/forms/d/e/1FAIpQLSc9PPBX7vEuNaHHfgWy9JwKGFTAiogpKN917wKmgcnKEGWA8w/viewform?usp=sf_link) 
+Homework due next Tuesday at 7 pm: [What's my Brand Worksheet](https://docs.google.com/forms/d/e/1FAIpQLSc9PPBX7vEuNaHHfgWy9JwKGFTAiogpKN917wKmgcnKEGWA8w/viewform?usp=sf_link) 
 
 Review [Organizations that have hired GA DSI Graduates](https://drive.google.com/open?id=1cYV2nXvU0WT-euh6sGm6s47i13h9CJa02diME3O1Ghw) 
 
 By completing the worksheet you have submitted your homework this week.
+
+## Local Market Presentations 
+
+- [Atlanta](https://docs.google.com/a/generalassemb.ly/presentation/d/1h8WOZ_kYwyN0lWkXMuPyx8ppLepdzRqhgczECv9aiUA/edit?usp=sharing) 
+- [Austin](https://docs.google.com/presentation/d/1FptpJHCExFm1XUma8mhEKmSMUsZL1fzFc1jo00NPWek/edit?usp=sharing) 
+- [Boston](https://drive.google.com/file/d/0B3byrt86nJ8jVjcxdHl2MFlUclk/view?usp=sharing)
+- [Chicago](https://drive.google.com/file/d/0B79n4qzQBXGkTzBob1JJbFZ5M28/view?usp=sharing)
+- [NYC](https://drive.google.com/file/d/0B4Db6Ll5urG2OVJvdDd3YTVxdDg/view?usp=sharing) 
+- [Denver](https://drive.google.com/file/d/0B4Db6Ll5urG2emY3SlFwRW95WmM/view?usp=sharing)
+- [Los Angeles](https://drive.google.com/file/d/0B2TA2w6EftvNaUdWQXV5S0FHcVk/view?usp=sharing)
+- [San Francisco](https://drive.google.com/a/generalassemb.ly/file/d/0B5K--i6yxjUjeEZMck9UeGZ0QUk/view?usp=sharing) 
+- [Seattle](https://docs.google.com/presentation/d/1r3iAx6H4bg259juFj2pQ6_NL1U7wzfyE_Vh0tRHBtho/edit#slide=id.g27aa6cdc73_0_399)
+
 
 ## Further Reading and Resources: 
 - [Wharton, UPenn: ‘So, What Do You Do?’ Rethinking Small Talk](http://knowledge.wharton.upenn.edu/article/so-what-do-you-do-rethinking-small-talk/?utm_source=Sailthru&utm_medium=email&utm_campaign=%2A%20New%20BOTW%20Template%2011/8/15&utm_term=Sunday%20-%20Best%20of%20The%20Web)
